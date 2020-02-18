@@ -15,7 +15,7 @@ I once talk to people. When I try to take an example, I forget to tell him this 
 
 I had nothing to say.
 
-Even no chance to clarify.
+Even no chance to clarify. Before the post was deleted, before I know this post will be deleted.
 
 So, I feel that many people do not have the patient to talk to you.
 
