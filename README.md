@@ -4,3 +4,21 @@
 
 I would like to know how people think.
 
+
+# examples
+
+
+
+I once talk to people. When I try to take an example, I forget to tell him this is not the thing that I test. The aim is to show the idea. Guess what?
+
+>  YOU MUST BE LYING
+
+I had nothing to say.
+
+Even no chance to clarify.
+
+So, I feel that many people do not have the patient to talk to you.
+
+So, I need to study what they are thinking. 
+
+And try to avoid such thing. Next time I talk to them.
