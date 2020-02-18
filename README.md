@@ -22,3 +22,10 @@ So, I feel that many people do not have the patient to talk to you.
 So, I need to study what they are thinking. 
 
 And try to avoid such thing. Next time I talk to them.
+
+
+# ref
+
+https://emacs-china.org/t/re/11836
+
+https://chaoli.club/index.php/5030/p1#p51326
